@@ -1,1 +1,1 @@
-# privacy-policy
+الاسم والبريد الإلكتروني لتحسين تجربه المستخدم# privacy-policy
